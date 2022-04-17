@@ -1,2 +1,2 @@
 # Gusworld
-Dont ask cus I moght know.
+Dont ask cus I might know.
