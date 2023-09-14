@@ -1,2 +1,2 @@
 # Gusworld
-Dont ask cus I might know.
+私はガチョウです
